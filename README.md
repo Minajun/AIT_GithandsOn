@@ -1,4 +1,4 @@
-# AIT_GithandsOn
+ï»¿# AIT_GithandsOn
 
-##— —¾’·“c“‡
-- ‚â‚Á‚Ù[
+##è£å¯®é•·ç”°å³¶
+- ã‚„ã£ã»ãƒ¼
